@@ -1,6 +1,6 @@
-## // (_ _) zｚＺ
+## (_ _) zｚＺ
 — ｡° -
-<br/> ---> 🌀 i make games :p 
+<br/> ---> // 🌀 i make games :p 
 <br/> - ° . —
 <!--
 **st4rstrxckk/st4rstrxckk** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
