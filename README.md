@@ -1,6 +1,6 @@
 ## (_ _) zｚＺ
 — ｡° -
-<br/> ---> // 🌀 my back hurts 
+<br/> ---> // 🌀 wired
 <br/> - ° . —
 <!--
 **st4rstrxckk/st4rstrxckk** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
