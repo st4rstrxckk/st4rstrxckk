@@ -4,4 +4,4 @@
 <br>
 <br>
 
- <img width="30" height="30" alt="image" src="https://nukochannel.neocities.org/NukoImg/Reactions/nukoTongueOut.gif" /> 
+ <img width="30" height="30" alt="little cat" src="https://nukochannel.neocities.org/NukoImg/Reactions/nukoTongueOut.gif" /> 
