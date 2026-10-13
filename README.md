@@ -1,5 +1,5 @@
 ## `(_ _) z z Z`
-[`[ programadora ｡° ]`](https://www.desmos.com/calculator/ylkwvl6lfv)
+[`[ x^2-1.4y|x|+y^2<3 ]`](https://www.desmos.com/calculator/bvqvjqpqtx)
 <br>
 [`[ vex u ]`](https://210robotics.com/programs/vex-u)
 
